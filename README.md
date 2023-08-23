@@ -41,7 +41,7 @@ Mr. Sandip Gavit
 
 Please review and comment with your worthy suggestions.
 
-![image](https://github.com/prabhatrsharma/TechnoHacks-RegistrationForm/assets/118990267/df61dd2f-bf63-4955-9e8e-2b2996f22a27)
+![image](https://github.com/prabhatrsharma/TechnoHacks-RegistrationForm/assets/118990267/d8ee26e7-1681-4930-b51f-683b6ddd310a)
 
 
 Thank You!!!
